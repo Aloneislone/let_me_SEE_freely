@@ -15,6 +15,7 @@ void fix_the_problem()
     {
         cin >> a[i];
     }
+    
 }
 
 int main (void)

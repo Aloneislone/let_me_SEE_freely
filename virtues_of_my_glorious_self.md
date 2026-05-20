@@ -1,3 +1,8 @@
+i do not see what is in front of my own eyes.
+    i wish to know that which is worth knowing.
+    in hurry as i am.
+"i" figure something out.
+    i think myself the greatest of all.
 i confuse myself. high priority truths with noisy truths.
     i want more when i have enough.
     i pose as a wise man knowing these things.
@@ -14,3 +19,7 @@ i lack realistic estimate of how much energy it will take for me to learn and re
 i become offended by the word THREAT and seek to prove that i am not afraid of it.
     i think it is wrong to uproot a threat when it is small.
 i destroy that which is working for me. that which i depend on. beyond use. then i seek freedom from misery.
+i grow familiar with the wrong things while right things are unreal in my heart.
+
+in a hurry i become unaware of my surroundungs,
+in a hurry i lose the discrimination between what is significant and what is not significant.

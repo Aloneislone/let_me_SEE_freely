@@ -1,96 +1,92 @@
-# i will never achieve great things.
-
-IF i do NOT have ANY thing NEW in me;
-THEN why will i do a NEW thing?
-IF i do NOT do ANY thing NEW;
-THEN how can i expect to do ANY thing worthy of my Time?
-
-what seems like the problem worth fixing is the real problem at play?
-    is the realer problem NOT creating my own future self such that it is able to fix certain problems with ease?
-    "why can the self NOT get it done in Reality?"
-    "why do i think it is NOT possible?"
-    "why do i have a belief in 'i can NOT possibly seek for it and find it in Reality!'?"
-that_which_seems_impossible_to_be_done CAN be that_which_can_be_done_by_the_self_with_ease in_a_certain_way.
-IF i do it the right way;
-THEN is it NOT simple?
-2 problems CAN add up and give me 0 problems.
-creating 1 problem CAN fix my problems.
-fixing 1 problem CAN fix my problems.
-trust in the existence of a_certain_way which is capable of fixing MANY problems.
-that_which_is_useless is really useless?
-that_which_is_worth_knowing has this strange property of being that_which_is_NOT_worth_knowing.
-
 whatever good has been "done by me", is done by me in Reality?😜😜😜
 can i dare to be innocent in this nightmarish_Reality?
-why is knowledge the same as SELF?
-because by doing LESS,
-    by merely trying to see,
-    by simply knowing,
-    greater things are realized by the self at will.
+why is knowledge the same as self?
+    because by doing less,
+        by merely trying to see,
+        by simply knowing,
+        greater things are realized by the self at will.
+
 IF the_right_knowledge can help the self fix the_problem_in_Reality easily;
 THEN is not the realer problem to help the self gain access to the_right_knowledge?
+# i will never achieve great things...
+i wish to know or not?
+because the problems of various kinds are present in the way i think.
 
-why do i doubt myself that i am NOT on the right way when i am on the right way?
-is the right way any thing other than knowing that i allready know enough things?
-knowing a thing for the very 1st time with respect to how profit perception integrates the new knowledge.
+IF i think it is not simple,
+THEN i can think i know ANY thing about it?
+IF i think it is simple;
+THEN i can think i know ANY thing about it?
+IF i do not know enough,
+THEN do i need to pretend that i allready do?
 
+IF i do not have any thing new in me;
+THEN why will i do a new thing?
+IF i do not do any thing new;
+THEN how can i expect a new Reality?
 
-IF the self is capable of doing the perception of "how to get it done?";
-THEN it is NOT fun?
-IF i come to do the perception of "that can be done by me in Reality";
-THEN it is fun to be proven wrong?
+what seems like the problem worth fixing is the real problem at play?
+    "why can the self not get it done in Reality?"
+    "why do i think it is not possible?"
+    "why do i have a belief in 'i can not possibly seek for it and find it in Reality!'?"
 
-all innocent beings are NOT aware of the knowledge in _this_ text?
-is it NOT a lie that realer Reality tries to sell to me?
+that_which_seems_impossible_to_be_done can not be that_which_can_be_done_by_the_self_with_ease in_a_certain_way?
+IF i do it the right way;
+THEN is it not simple?
+2 problems can add up in a certain way and give me 0 problems.
+creating 1 problem can fix many problems.
+please trust in the existence of a_certain_way which is capable of fixing my problem.
+
+all innocent beings are not aware of the knowledge in _this_ text?
+is it not a lie that realer Reality tries to sell to me?
 
 certain gems of truth are capable of being rated?😇
 
-allready know that FAILURE FEEDS SUCCESS?
-O darling, SUCCESS FEEDS SUCCESS also.
+allready know that failure feeds success?
+o darling, success feeds success also.
 
 that_which_is_desired_by_the_self_to_be_done_in_Reality
 is the same as
-that_which_the_self_can_NOT_get_done_in_Reality?
+that_which_the_self_can_not_get_done_in_Reality?
 
-PROOF is what rules...
-the_WHY_it_is_the_way_it_is; use examples to eradicate blindness.
+proof is what rules...
+the_why_it_is_the_way_it_is; use examples to eradicate blindness.
     1. **create a proposition** which is free from the defect of having much exceptions.
     2. test the proposition.
     3. repeat.
 
 
-i get lost in problems-environment with respect to that_which_is_worth_knowing?
-/*what happens when i revisit a problem i allready failed at. something weird.*/
 
 
-i think i know that_which_is_worth_knowing but i_do_NOT_really_know_it.
-that_which_is_self_evident is full of danger. BEWARE.
-(moodha nammakamu)
+why do i doubt myself that i am not on the right way when i am on the right way?
+is the right way any thing other than knowing that i allready know enough things?
+knowing a thing for the very 1st time with respect to how profit perception integrates the new knowledge.
+new knowledge brings with it a sense of hurry?
 
-what if,
-what if,
-what if that truth i know is not true?
-...tatatata...
+
 
 not required to sharpen the pencil?
     that_which_is_worth_knowing is that_which_is_worth_knowing?
+    i think i know that_which_is_worth_knowing but i_do_not_really_know_it.
+    that_which_is_self_evident is full of danger with respect to profit. BEWARE.
+    (moodha nammakamu)
 
-is the __re-freshing__ of the self aimless?
+is the re-freshing of the self aimless?
 drinking water is bereft of joy?
 
 
-enjoying NOT writing on a piece of _paper_?
-am i NOT being horribly wrong at certain things in Reality?
-a brilliant question is NOT a stupid question?
-is that_which_i_want_to_be_in_Reality NOT that_which_is_worthy_of_being_known_by_the_self?
+enjoying not writing on a piece of _paper_?
+am i not being horribly wrong at certain things in Reality?
+a brilliant question is not a stupid question?
+is that_which_i_want_to_be_in_Reality not that_which_is_worthy_of_being_known_by_the_self?
 IF the problem is fixed by the self,
-THEN is the answer to _how the problem has been fixed by the self?_ NOT significant?
+THEN is the answer to _how the problem has been fixed by the self?_ not significant?
 
-IF i do not read **_this_** text;
+that_which_is_useless is really useless?
+that_which_is_worth_knowing has this strange property of being that_which_is_not_worth_knowing.
+
+IF i do not read _this_ text;
 THEN something bad may happen?
-i think i know that_which_is_worth_knowing but i_do_NOT_really_know_it.
-that_which_is_self_evident is full of DANGER. (moodha nammakamu)
-do i not need to give myself the freedom to know it 3 times?
+do i not need to give myself the freedom to know it more than once?
 am i fearing not being able to stop myself from fearing?
 improving the workings of profit-loss-complex is not known to me?
 it is clear if and only if i can write it out in a way that originates from a self-evident root.
@@ -98,9 +94,12 @@ it is clear if and only if i can write it out in a way that originates from a se
 
 
 that_which_can_be_done_by_the_self_in_Reality
-    requires NOT a revision?
-    requires NOT investigation?
+    requires not a revision?
+    requires not investigation?
 
+i will not learn for a certain unknown reason.
+i fear it like a mad man.
+nothing is particularly wrong with me. remember Mrunalini ma'am with respect to VS-code?
 
 dealing with AIM that is "significant"?
     • take the time to build a_small_real_specific_easy_imperfect_AIM.
@@ -114,6 +113,10 @@ am i bound to witness each aim of mine perish right in front of me?
 is not **interesting** a key word with respect to the door of finer details?
 am i incapable of realizing a desire through a carefully crafted plan?
 
+IF the self is capable of doing the perception of "how to get it done?";
+THEN it is not fun?
+IF i come to do the perception of "that can be done by me in Reality";
+THEN it is fun to be proven wrong?
 -----------------------------------------------------------
 a_TINY_step : small. easy. simple. BREAK.
 -----------------------------------------------------------
@@ -147,25 +150,16 @@ use recursion to my heart's content!!!
 
 
 Reality is the ultimate context.
-(need to keep sentences short. things seem to lose meaning when uttered multiple times; why?)
+(need to keep sentences short.)
 context is just a collection of variables...
     1. perception of vital IF-THEN relationships,
     2. proper variable(property perception) declaration,
     3. proper function calling,
-    4. usage of NOT,
+    4. usage of not,
     5. Tao is at play on Tao in a Tao way...(that is why everything is sooo confusing.)
 can take the self a loooong way...
 IF i can see through it,
 THEN it is not fun anymore?
-
-
-
-IF i think it is NOT simple,
-THEN i can think i know ANY thing about it?
-IF i think it is simple;
-THEN i can think i know ANY thing about it?
-IF i do not know enough,
-THEN do i need to pretend that i allready do?
 
 
 in a problems-environment,
@@ -175,14 +169,14 @@ in a problems-environment,
     i am only seeing that which i did right... where did i go wrong?
 what does it mean to see all things FOGGY?(take small examples...)
 
-IF i think improvement is NOT possible for a certain thing at play;
+IF i think improvement is not possible for a certain thing at play;
 THEN maybe i am being right. maybe i am being wrong. maybe i am being right.
 
 
 
 **fun_attitudes:**
     this is interesting...
-    it is NOT about "mathematics"; it is about witnessing BEAUTY.
+    it is not about "mathematics"; it is about witnessing BEAUTY.
     let me fail in awesome ways!
     what am i really trying to get done?
     a certain way must be existing that helps me fix my problem with ease.
@@ -193,11 +187,11 @@ THEN maybe i am being right. maybe i am being wrong. maybe i am being right.
     not sure? try to know it for real. why to guess it?
     failure is a good news. why? because i get to know "i missed to know that_which_is_worth_knowing.".
     i am getting to know more and more of that_which_is_worth_knowing.😇
-    my desire is just to know the answer of "why can i NOT get the problem fixed?"; it is NOT to get the problem fixed.
-    why do i have a certain belief in it being NOT possible to be done by me?
-    can i NOT do ANY thing with respect to the usefull things i have had the opportunity to create?
+    my desire is just to know the answer of "why can i not get the problem fixed?"; it is not to get the problem fixed.
+    why do i have a certain belief in it being not possible to be done by me?
+    can i not do ANY thing with respect to the usefull things i have had the opportunity to create?
     it is all just a delusion. what is so genius, so special about me to have that problem fixed in Reality?
-    am i NOT the friend of "machine"? do i want it to execute instructions aimlessly?
+    am i not the friend of "machine"? do i want it to execute instructions aimlessly?
     HOW CAN I BE SOOO SURE????????????????????????????????
 
 good things just take time BUT is it that much?
@@ -227,40 +221,45 @@ it is clear if and only if i can speak it out loud in a way that originates from
 
 
 **beliefs:**
-    IF i know how to get a_certain_thing done in Reality;
-    THEN it is allready done by my self in Reality?
-    IF i know how to get a_certain_thing done in Reality;
-    THEN it is NOT possible for me to do it?
-    IF i know how to get a_certain_thing done in Reality;
-    THEN it is NOT possible for me to do it?
-    IF i do not know how to do a_certain_thing in Reality;
-    THEN it is NOT possible for me to know how to do it?
-    IF i do not know how to do a_certain_thing in Reality;
-    THEN it is NOT possible for me to do it?
-
-    IF i do NOT know a_certain_thing;
-    THEN it is NOT possible for me to know it?
-    IF i do NOT know a_certain_thing;
+    IF i do not know a_certain_thing;
+    THEN it is not possible for me to know it?
+    IF i do not know a_certain_thing;
     THEN i allready know it?
     IF i do know a_certain_thing;
-    THEN i can NOT have faith in "i know it."?
+    THEN i can not have faith in "i know it."?
 
-    IF i have NOT done a_certain_thing allready;
-    THEN is it NOT possible for me to do it?
+    IF i have not done a_certain_thing allready;
+    THEN it is not possible for me to do it?
     IF i have done a_certain_thing allready;
-    THEN is it NOT possible for me to do it?
+    THEN it is not possible for me to do it?
 
-    IF i start taking my own creation for granted;
-    THEN will i NOT be able to create it again?
+    IF i do not know how to do a_certain_thing in Reality;
+    THEN it is not possible for me to know how to do it?
+    IF i do not know how to do a_certain_thing in Reality;
+    THEN it is not possible for me to do it?
+    IF i know how to get a_certain_thing done in Reality;
+    THEN it is not possible for me to do it?
+    IF i know how to get a_certain_thing done in Reality;
+    THEN it is allready done by my self in Reality?
 
-    IF i can NOT get it done NOW;
-    THEN i can NOT get it done with respect to Time?
+
+    IF i start taking it for granted;
+    THEN will i not be able to create it again?
+
+    IF i can not get it done NOW;
+    THEN i can not get it done with respect to Time?
 
     IF i do not know what i want to be done;
-    THEN is it NOT possible for me to know what i want to be done?
+    THEN it is not possible for me to know what i want to be done?
+
+    IF i wait to do what i want to be done;
+    THEN it is not possible for me to get it done?
+
+    i can not work till i am tired. i need a break for no good reason.
 
     by fearing to ignore it, have i not ignored it allready?
 
+    it is fun to teach.
 
 i equate let_me_try_to_know with let_me_Father_Up_Can_Know.
 i know that i am doing something wrong. i know what i am doing wrong. i know that i can fix it easily. i do not fix it. i lose faith in something about my own self for some strange reason... 
@@ -312,18 +311,21 @@ the moment i look at an unknown thing, i develop certain beliefs with respect to
 
 
 
-USEFULL_TRUTHS
-DESIRE
-PROPOSITION
-IMAGINATION (perception_of_the_way_in_which_to_realize_the_DESIRE)
-ACTION
+HIDDEN
+    TRUTH
+    PROPOSITION
+    IMAGINATION (perception_of_the_way_in_which_to_realize_the_DESIRE)
+    ABILITY
+    WORK
+    DESIRE
+
+PROOF
+EXCEPTION
 TRANSFORMATION
 CONCLUSION
-EXCEPTION
 EXPECTATION
 ASSUMPTION
 HONEST_DOUBT
-PROOF
 
 PROPERTY
 BOUNDARY
@@ -346,35 +348,36 @@ how to do the perception of why it is the way it is? - good question.
     3. being able to undo what i allready did and start again.
 
 
-perception of what is being done is NOT usefull?
-NOT guilty of losing the sight of that_which_is_significant?
+perception of what is being done is not usefull?
+not guilty of losing the sight of that_which_is_significant?
 
 "i accounted for each case; how can i possibly be wrong?"
 strange terms and unseen conditions APPLY...
 
-perception of answer to "how this problem can NOT be fixed?" is also usefull.
+perception of answer to "how this problem can not be fixed?" is also usefull.
 
 draw up certain properties of the ideal fix of the problem.
 i become horribly blind to other ways of doing the same thing once i choose 1 way and start doing it.
 
 with new knowledge of things_at_play comes the awareness of what i can do with it,
 with the knowledge of what i can do comes the perception of how to experience profit?
-IF in a given problems-environment, a single NOT usefull truth has been done the perception of by the self,
+IF in a given problems-environment, a single not usefull truth has been done the perception of by the self,
 THEN things at play are not known to me, though i like to assume the contrary.
 
 opposites are not allways opposites,
 sometimes they are inalienable parts of each other.
 
-IF i let my mind fall in love with the dream of experiencing the finest of experiences;
-THEN i become such that i feel good at the idea of the dream coming to be.
-IF i come to feel good at the idea of realizing my dream;
-THEN eventually, i come to desire it to be.
-IF i desire it to be;
-THEN i desire that innocent beings commit various types of mistakes...
+defect in competition
+    IF i let my mind fall in love with the dream of experiencing the finest of experiences;
+    THEN i become such that i feel good at the idea of the dream coming to be.
+    IF i come to feel good at the idea of realizing my dream;
+    THEN eventually, i come to desire it to be.
+    IF i desire it to be;
+    THEN i desire that innocent beings commit various types of mistakes...
 
 that_which_feels_like_loss is profit,
 that_which_feels_like_profit is loss.
-knowledge acts like magnet for knowledge of the-right-thing-to-do.
+knowledge attracts knowledge of the-right-thing-to-do.
 
 
 
@@ -389,9 +392,9 @@ QUOTES
 "that is all well and good as an aim but how exactly do i want it to come to be?"
 "wait, i was thinking something."
 "am i not being wrong in many ways?"
-"this is NOT the way!!!"
+"this is not the way!!!"
 "it does not make ANY sense to me."
-"this is NOT normal."
+"this is not normal."
 "wait let me revisit that and see if i have grasped it correctly.."
 "let me try being clearer..."
 "what on Earth am i doing? i do not even know."
@@ -402,7 +405,7 @@ QUOTES
 "there must be a certain way."
 "got you, my friend!"
 "this is enough for doing that."
-"BUT THIS IS THE EXACT SAME THING I DID EARLIER. WHY DO I HOPE THAT IT WILL WORK THIS TIME?"
+"but this is the exact same thing i did earlier, why do i hope that it will work this time?"
 "so what? just leave me alone!"
 "why to take that way when i can take this way?"
 how to get this problem fixed?
@@ -429,7 +432,7 @@ it is unknowable to me; but why?
 
 PROBLEM
     at any point in time, i am dealing with at most 2 significant problems-environments!
-    while playing in a problems-environment, i come to develop certain beliefs/fears with respect to that_which_is_at_play and that_which_is_NOT_at_play.
+    while playing in a problems-environment, i come to develop certain beliefs/fears with respect to that_which_is_at_play and that_which_is_not_at_play.
 
 
 PROPERTY
@@ -467,12 +470,13 @@ BOUNDARY
 
 
 **real_time_perceptions_in_problems_environment:**
-    IF the chosen way of investigation in a problems-environment is NOT good enough;
+    IF the chosen way of investigation in a problems-environment is not good enough;
     THEN will i not RE-DOUBT my own correct conclusions with respect to exceptions?
     am i aware of all the mistakes i am prone to make?
     will i not MISS-TAKE right for wrong?
 
-    once i know what i am missing to be on the right way, the only thing i can think of is "what was i thinking all this time!";
+    once i know what i am missing to be on the right way,
+     the only thing i can think of is "what was i thinking all this time!";
     i have also become unable to make sense of the logic that i was thinking as correct.
     it is weird.
 
@@ -529,8 +533,18 @@ specific eyes are required to see these properties.
 
 
 common_miss-takes_i_commit
-# by becoming aware of my miss-take, have i NOT ceased to commit it?
+(spend time with my misstakes...)(but i will not...)
+(i fear i will not see it even after seeing it. i curse myself for taking time.)
+# by becoming aware of my miss-take, have i not ceased to commit it?
+why do i ignore the misstakes i commit?
+why do i curse myself for ignoring the misstakes i commit?
+why do i think "i am hopeless and can never correct the misstakes i commit in Reality!"?
 
+HURRY
+    why do i think certain things to be that_which_is_not_worth_knowing while my eyes are reading?
+
+
+why do i lose the knowledge i proceed to teach to innocent beings?
 why do i keep seeking to do the perception of how awesome i am for coming to know all of this on my own? i do not know.
 why am i proud of "my achievements"? i do not know.
 why do i seem to know the truth about my own miss-takes BUT i do not really own it? i do not know.
@@ -544,11 +558,10 @@ why do i put my hands near my mouth when i come to know of my miss-takes? i do n
 why do i think these are not even miss-takes? i do not know.
 why do i have a belief in "it is inevitable for me to make these miss-takes, nothing wrong in it and nothing i can do about it."? i do not know.
 why do i feel the urge to leave my resting posture and do something, once i become aware of my miss-takes? i do not know.
-
 why do i focus on low priority work-items while high priority work-items are being completely ignored? i do not know.
 why do i eradicate all of my work in frustration instead of simply taking a break? i do not know.
 why do i consider failing at fixing "hard" problems acceptable? i do not know.
-why do i not give up the way in which i can NOT realize my desire? i do not know.
+why do i not give up the way in which i can not realize my desire? i do not know.
 why do i give up the way in which i can realize my desire? i do not know.
 why do i keep updating the beginning of a text without properly knowing what i want the text to do? i do not know.
 why do i not see the INSANITY in the way i apply my knowledge in order to get a problem fixed in Reality? i do not know.
@@ -622,7 +635,7 @@ why do i hope that God sees my sorrow? i do not know.
 why do i have a belief in "once my self gives attention to fixing a problem it is done existing in Reality."? i do not know.
 why do i have a belief in "i deserve justice!"? i do not know.
 why do i have a belief in "i will never be able to get that problem fixed."? i do not know.
-WHY AM I NOT EXCITED TO KNOW OF THE FOLLOWING?
+WHY AM I not EXCITED TO KNOW OF THE FOLLOWING?
 why do i not think "so, it can not be done in THAT way." instead of "it simply can not be done!"? i do not know.
 why do i think "something other than proper preparation is required to realize my desire."? i do not know.
 why do i not even want to ask the why questions; no desire to know the why? i do not know.
@@ -646,7 +659,7 @@ why do i seek to gain what i come to want without knowing what i plan to do with
 why do i proceed to make changes in this file when i am not thinking properly? i do not know.
 why do i not take time to think of "that_which_i_can_do with what i allready have access to."? i do not know.
 why do i assume i can do it, when i can not? i do not know.
-why do i assume i can NOT do it, when i can? i do not know.
+why do i assume i can not do it, when i can? i do not know.
 why do i consider 9 * 7 = 9 + 7 while attempting certain problems? i do not know.
 why do i consider -1 * -1 = -1 while attempting certain problems? i do not know.
 why do i make choices such that i come to feel good IF innocent beings incur a loss? i do not know.
@@ -680,15 +693,15 @@ why do i wish to focus on the glorious deeds of beings aimlessly? i do not know.
 why do i wish to ignore my own problems? i do not know.
 why do i overshare to innocent beings? i do not know.
 why do i have so much belief in "i will never get my Future improved!"? i do not know.
-why do i want to create something big and awesome but NOT something small and broken? i do not know.
-why do i think my problem is solved, when it is NOT? i do not know.
-why do i excessively unnecessarily fear NOT being able to stay true to the belief innocent beings have in me? i do not know.
+why do i want to create something big and awesome but not something small and broken? i do not know.
+why do i think my problem is solved, when it is not? i do not know.
+why do i excessively unnecessarily fear not being able to stay true to the belief innocent beings have in me? i do not know.
 why do i fear having useandthrow policy in my heart of hearts? i do not know.
 why do i not desire to reknow what i think has allready been known by me? i do not know.
 why do i develop a fear of unknown concepts; trusses and frames? i do not know.
 why do i think "IF i was unable to solve it earlier, THEN i can not solve it now."? i do not know.
 why do i shy away from doing division of large numbers; not sure about checking the answer twice, fear of growing tired? i do not know.
-why do i despisingly judge and laugh without any sense of what is true and what is NOT? i do not know.
+why do i despisingly judge and laugh without any sense of what is true and what is not? i do not know.
 why do i think long sentences are unworthy of being truthfull? i do not know.
 why do i convince myself that a good thing practiced in sincerety is useless? i do not know.
 why do i fear a pile of work-items instead of seeking to identify how i can start with the very initial steps? i do not know.
@@ -728,6 +741,6 @@ why do i let fear creep in with respect to a loss of practice? i do not know.
 why do i confuse what is worth emulating and what is not worth emulating; ascribing y actions to mysterious destiny? i do not know.
 why do i fear laughing at a sacred thing instead of asking "what is there to laugh in it?"? i do not know.
 why do i wish to change things too early? i do not know.
-why do i hope in vain as "the worst possible thing SHOULD NOT happen"? i do not know.
+why do i hope in vain as "the worst possible thing SHOULD not happen"? i do not know.
 why do i misname things such that these things lose meaning; a creation depending on truths_at_play is termed as LOGIC? i do not know.
 why do i miss-take that_which_need_not_be_true to be that_which_must_be_true? i do not know.

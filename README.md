@@ -1,6 +1,6 @@
 # i will never achieve great things...
 why?
-because there is only 1 rule in life.
+because there is only 1 rule in life.  
 `😜just shut up.😜`
 
 whatever good has been "done by me", is done by me in Reality?

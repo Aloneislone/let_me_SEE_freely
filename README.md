@@ -1,4 +1,9 @@
-whatever good has been "done by me", is done by me in Reality?😜😜😜
+# i will never achieve great things...
+why?
+because there is only 1 rule in life.
+`😜just shut up.😜`
+
+whatever good has been "done by me", is done by me in Reality?
 can i dare to be innocent in this nightmarish_Reality?
 why is knowledge the same as self?
     because by doing less,
@@ -8,7 +13,7 @@ why is knowledge the same as self?
 
 IF the_right_knowledge can help the self fix the_problem_in_Reality easily;
 THEN is not the realer problem to help the self gain access to the_right_knowledge?
-# i will never achieve great things...
+
 i wish to know or not?
 because the problems of various kinds are present in the way i think.
 
@@ -117,50 +122,6 @@ IF the self is capable of doing the perception of "how to get it done?";
 THEN it is not fun?
 IF i come to do the perception of "that can be done by me in Reality";
 THEN it is fun to be proven wrong?
------------------------------------------------------------
-a_TINY_step : small. easy. simple. BREAK.
------------------------------------------------------------
-
-INSIDE SEARCH LIES ALL INTELLIGENCE!
-
-(in basic_operations.h)
-
-for(i=1;i<=MEMORY_POWER;i++){
-    if(the_perception_is_done_of(how_it_can_be_done(that_which_is_wanted_to_be_done_by_the_self_in_Reality[i])) != NULL) {
-
-    }
-}
-
-for(i=1;i<=MEMORY_POWER;i++){
-    for(j=1;j<=MEMORY_POWER;j++){
-        if(that_which_is_wanted_to_be_done_by_the_self_in_Reality[i] == that_which_the_self_can_get_done_in_Reality[j]) {
-            execute(that_which_the_self_can_get_done_in_Reality[j]);
-            break;
-        }
-    }
-}
-
-understanding the WHY is the key.
-we build it in a way that what we call as context is very very very flexible in memory.
-full of properties of things and what the self can and can not do.(perception also)
-using functions as well as loops for the same work-item.
-
-hidden IF-THEN are used to create texts of unhidden IF-THEN. how wonderfull...
-use recursion to my heart's content!!!
-
-
-Reality is the ultimate context.
-(need to keep sentences short.)
-context is just a collection of variables...
-    1. perception of vital IF-THEN relationships,
-    2. proper variable(property perception) declaration,
-    3. proper function calling,
-    4. usage of not,
-    5. Tao is at play on Tao in a Tao way...(that is why everything is sooo confusing.)
-can take the self a loooong way...
-IF i can see through it,
-THEN it is not fun anymore?
-
 
 in a problems-environment,
     what is the difference between

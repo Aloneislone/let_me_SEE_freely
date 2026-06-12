@@ -7,7 +7,6 @@
 
 3)  is the answer to "why is the answer what it is?" NOT that_which_is_worth_knowing?
 
-README.md:
     keep things interesting.
     keep things full of use.
     keep things born out of realizations during my experiences in problems-environment.

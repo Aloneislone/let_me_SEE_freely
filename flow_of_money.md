@@ -67,6 +67,7 @@ types:
                 scissor
                 pen
                 book
+                box
             worship
                 coconut
                 incense
@@ -83,9 +84,40 @@ types:
             insurance
             dentist
             medicines
+            psychiatrist
+        minimum-balance-for-bank-accounts
         gifts-to-innocent-beings-fund
     staying
         safe-emergency fund                  (6+ month basic-survival-expenses)
 
 for any time period,
     incoming - outgoing = staying
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+wealth is that which energyses the self in that_which_the_self_can_get_done_in_Reality with respect to a problem.
+wealth is a wierd thing.
+    loss of wealth is a kind of a gain of wealth.
+    gain of wealth is a kind of a loss of wealth IF i am not aware.
+
+loss of wealth leads to suffering.
+suffering from a problem makes the self desire a newer Reality.
+the self desiring a newer Reality starts wanting wealth.
+the self wanting wealth immediately seeks the knowledge of that_which_the_self_can_get_done_in_Reality with respect to the problem.

@@ -1,5 +1,6 @@
 # i will never achieve great things...
 why?
+because i am horribly wrong.
 because there is only 1 rule in life.  
 `😜just shut up.😜`
 
@@ -113,8 +114,10 @@ dealing with AIM that is "significant"?
     • repeat.
 
 do i need to bombard my tiny self with a multitude of aims in the twinkling of an eye?
+i have become unhappy with myself?
 COME ON i have just started! please provide me certain freedom with respect to Time.
 am i bound to witness each aim of mine perish right in front of me?
+
 is not **interesting** a key word with respect to the door of finer details?
 am i incapable of realizing a desire through a carefully crafted plan?
 
@@ -277,8 +280,16 @@ HIDDEN
     PROPOSITION
     IMAGINATION (perception_of_the_way_in_which_to_realize_the_DESIRE)
     ABILITY
-    WORK
+    WORK-ITEM
     DESIRE
+
+PROPERTY
+BOUNDARY
+FIX
+PROBLEM
+PERCEPTION
+CONDITION
+SEEKING
 
 PROOF
 EXCEPTION
@@ -288,13 +299,6 @@ EXPECTATION
 ASSUMPTION
 HONEST_DOUBT
 
-PROPERTY
-BOUNDARY
-FIX
-PROBLEM
-PERCEPTION
-CONDITION
-SEEKING
 
 conclusions are created using proofs.
 a proposition brings with it a need(problem) for proof.
@@ -687,7 +691,7 @@ why do i not endeavour to RE-FRESH my own self? i do not know.
 why do i not respond to "oh my God! what should i do now? i have no clue... IF i do not distract myself quickly THEN i may end up hating myself." with calm based on what i do know? i do not know.
 why do i come to have a belief in "i need to do that unnecessary preparation. i fear being exposed."? i do not know.
 why do i stop doing the-next-action-step IF i know doing it is good for me; which i was doing allready? i do not know.
-why do i think a certain thing is "HARD"; in codeforces A < B < C < D < E < F < G < H < I < K < L < M < N < O? i do not know.
+why do i think a certain thing is "HARD"? i do not know.
 why do i think "IF i sit at a single place and become bored, THEN i will not be able to work again from that same place."? i do not know.
 why do i assume things_that_need_not_be_same as things_that_must_be_same? i do not know.
 why do i conveniently assume "i have completed that work-item, without having completed it?"? i do not know.
@@ -702,6 +706,6 @@ why do i let fear creep in with respect to a loss of practice? i do not know.
 why do i confuse what is worth emulating and what is not worth emulating; ascribing y actions to mysterious destiny? i do not know.
 why do i fear laughing at a sacred thing instead of asking "what is there to laugh in it?"? i do not know.
 why do i wish to change things too early? i do not know.
-why do i hope in vain as "the worst possible thing SHOULD not happen"? i do not know.
+why do i hope in vain as "the worst possible thing should not happen"? i do not know.
 why do i misname things such that these things lose meaning; a creation depending on truths_at_play is termed as LOGIC? i do not know.
 why do i miss-take that_which_need_not_be_true to be that_which_must_be_true? i do not know.

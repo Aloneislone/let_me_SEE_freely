@@ -40,7 +40,7 @@ IF i do it the right way;
 THEN is it not simple?
 2 problems can add up in a certain way and give me 0 problems.
 creating 1 problem can fix many problems.
-please trust in the existence of a_certain_way which is capable of fixing my problem.
+please seek for the existence of a_certain_way which is capable of fixing my problem.
 
 all innocent beings are not aware of the knowledge in _this_ text?
 is it not a lie that realer Reality tries to sell to me?
@@ -56,7 +56,7 @@ that_which_the_self_can_not_get_done_in_Reality?
 
 proof is what rules...
 the_why_it_is_the_way_it_is; use examples to eradicate blindness.
-    1. **create a proposition** which is free from the defect of having much exceptions.
+    1. **create a proposition**.
     2. test the proposition.
     3. repeat.
 
@@ -135,6 +135,8 @@ what does it mean to see all things FOGGY?(take small examples...)
 
 IF i think improvement is not possible for a certain thing at play;
 THEN maybe i am being right. maybe i am being wrong. maybe i am being right.
+
+
 
 
 

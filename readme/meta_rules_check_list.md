@@ -1,11 +1,6 @@
 # i am trying to know it BUT i am NOT able to know it!
 
-1)  IF questions are NOT being asked to the self;
-    THEN can the self come to know that_which_is_worth_knowing?
-
-2)  is the answer to the question not EITHER_A_YES_OR_A_NO?
-
-3)  is the answer to "why is the answer what it is?" NOT that_which_is_worth_knowing?
+is the answer to the question not EITHER_A_YES_OR_A_NO?
 
     keep things interesting.
     keep things full of use.
